@@ -32,8 +32,6 @@ Blackhat Academy is a leading provider of ethical hacking and cyber security tra
 # Design Hacking tools
 
 ```
-```   |  time```
-
 <dl>
 <dt>Class</dt>
 <dd>   live interactive</dd>
