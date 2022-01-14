@@ -46,4 +46,4 @@ Blackhat Academy is a leading provider of ethical hacking and cyber security tra
 <dd>   Flexible</dd>
 </dl>
 
-## [callnow](+919656596391) <<< 🥸 >>> [WhatsApp](https://wa.me/919656596391?text=hai..!%0ALet%20me%20know%20more%20about%20%F0%9F%91%87%F0%9F%8F%BB%20%0A%60%60%6015day%E2%80%99s%20ETHICAL%20HACKING%20COURSE%60%60%60%0Ahttps%3A%2F%2Fblackhatacademy.in%2FBH-100)
+##  >>> [WhatsApp](https://wa.me/919656596391?text=hai..!%0ALet%20me%20know%20more%20about%20%F0%9F%91%87%F0%9F%8F%BB%20%0A%60%60%6015day%E2%80%99s%20ETHICAL%20HACKING%20COURSE%60%60%60%0Ahttps%3A%2F%2Fblackhatacademy.in%2FBH-100)
